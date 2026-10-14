@@ -1,1 +1,1 @@
-https://github.com/AmanImazhan/ono-tebe-nado-fd
+https://github.com/AmanImanzhan/ono-tebe-nado-fd
